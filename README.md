@@ -56,7 +56,7 @@ Diseñada para quienes valoran la simplicidad y la elegancia, MuuPlay ofrece una
 
 ## 🌐 Redes sociales
 
-📸 **Instagram:** [JulioVaca](https://instagram.com/jvacag)
+📸 **Instagram:** [JulioVaca](https://instagram.com/juliovacag)
 
 ---
 
